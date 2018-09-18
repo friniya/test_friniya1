@@ -2,7 +2,7 @@
 
 something try
 I
-am
+am we
 a person
 something no
 came
